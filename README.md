@@ -1,7 +1,5 @@
 # Mr.Joker
 Crack Bocil² Goblok
-
-# SyamsulB
 ![anime-cute](https://user-images.githubusercontent.com/110714229/189511093-a3f33b06-ce67-4214-b2b2-dfebd8ab5bca.gif)
 
 Fuck You..!!
